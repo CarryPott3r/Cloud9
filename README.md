@@ -1,3 +1,3 @@
 # Cloud9
 New opportunity
-Student, love to learn, to study, to enjoy new staff, like to get batter at Web Development also Gameing Development, make something of my own. Teamwork 4life! :D
+Student, love to learn, to study, to enjoy new staff. Like to learn and get better at Web Development also Gameing Development, make something of my own.
